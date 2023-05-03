@@ -79,7 +79,7 @@ analysis.
 
 Kindly leave feedback and suggestions.
 
-You can reach me on [Twitter](https://twitter.com/vicky_star0), [LinkedIn](https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3BJUw%2FUZ5rQn2PAIP6BAyJLw%3D%3D)
+You can reach me on [Twitter](https://twitter.com/vicky_star0), [LinkedIn](www.linkedin.com/in/victoriaogwuche)
 
 
 
