@@ -2,7 +2,7 @@
 
 ![](Phar1.png)
 
-The aim of this project is to exhibit my skills analyzing and visualizing the pharmaceutical data using Power BI.
+The aim of this project is to exhibit my skills in analyzing and visualizing the pharmaceutical data using Power BI.
 
 
 ## Introduction
